@@ -1,1 +1,1 @@
-I, Zoljargal Enkhbayar, have read and understood the tuturial. 
+I, Zoljargal Enkhbayar, have read and understood the tutorial. 
