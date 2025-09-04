@@ -1,1 +1,0 @@
-I, Zoljargal Enkhbayar, have read and understood the tutorial. 
